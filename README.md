@@ -1,2 +1,3 @@
 # Buletproof-Introvert
-Journalist, Photographer
+Journalist, Photographer, Movie-maker and editor
+Working with editing programs: photoshop, Ilustrator, InDesigne, Premiere
