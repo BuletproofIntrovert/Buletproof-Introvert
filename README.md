@@ -1,1 +1,2 @@
 # Buletproof-Introvert
+Journalist, Photographer
